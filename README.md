@@ -4,3 +4,4 @@ This project belongs to me, and you should not use the text on the website whito
 If you want to get permition to use the text, you will have to send a dm to me, the creator the website.
 If you use this text, you have too credit me for it and link my website.
 All rights reserved. This project is under copyright law and I will open a legel case against you if you copy my work or use the code without my permition.
+Visit the site at https://iamtheuserjo.github.io/UppgiftnioFrankfurttio.github.io/
